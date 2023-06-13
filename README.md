@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Siris01
 - Website: [siris.me](https://siris.me)
-- Otherr account: @siriscmv
+- Other account: [siriscmv](https://github.com/siriscmv)
